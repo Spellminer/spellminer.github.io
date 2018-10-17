@@ -1,1 +1,1 @@
-# spellminer.github.io
+# iamweir.github.io
